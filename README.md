@@ -1,1 +1,1 @@
-# privacy-policy-ossiom
+# privacy-policy-ossiomo
